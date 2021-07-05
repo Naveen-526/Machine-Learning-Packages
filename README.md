@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @Naveen-526
+- 👀 I’m interested in Ethical Hacking, Artificial intelligence, Drones and Robotic Technologies.
+- 🌱 I’m currentlypursuing my graduation in Artificial intelligence
+- 💞️ I’m looking to collaborate  My learning as much as i can for my country
